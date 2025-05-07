@@ -1,0 +1,1 @@
+# jdszr18-Neuronauci
